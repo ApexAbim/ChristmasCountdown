@@ -1,1 +1,1 @@
-Find out how many days left till Santa comes
+Find out how many days is left till Santa comes
